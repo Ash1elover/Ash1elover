@@ -1,4 +1,4 @@
-/ Ashe , Ash1e
+/ Ashe , Ash1e !
 ╭ She/her, fictosexsual , aroace
 ╭ I don't like being called w ash unless ur my close friend or my friend!
 ╭ I'm in so much fandom! u can come and talk w me but If there's a fandom that Idk I'll look it just for u <3
