@@ -1,14 +1,17 @@
-/ Ashe , Ash1e !
+/ Ashe , Ash1e , Ashley !
 
 ╭ She/her, fictosexsual , aroace
 
 ╭ #1 Scar(wuwa) fan He's my husband guys trust / Furina kinnie u can go to my pinterest and look my fav chars! pint:https://pin.it/1NA9MovmD
 
-╭ I don't like being called w ash unless ur my close friend or my friend!
+╭ I don't like being called w 'ash' unless ur my close friend or my friend!
 
 ╭ I'm in so much fandom! u can come and talk w me but If there's a fandom that Idk I'll look it just for u <3
 
 ╭ Please be careful when u talk w me I have anxiety and I'm a person who can get stress so easily and IM SO SHYY!?
+
+╭ Please don't bring up topics like alcohol in my presence, even jokes; I get sick because of major traumas I've experienced, This mistake might cause me to distance myself from u, or even hate u, I'm sowwy
+;(
 
 ╭ I apologize if I remain silent during our conversation; I've only just met u and I don't know how to start a conversation!
 
