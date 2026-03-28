@@ -1,4 +1,4 @@
-/ Ashe , Ash1e , Ashley !
+ᯓ★ Ashe , Ash1e , Ashley !
 
 ╭ She/her, fictosexsual , aroace
 
@@ -28,3 +28,5 @@
 ╭ U can always find me w my bestie eva
 
 ╭ Uhhh that's for now I guess! Know that I love u no matter what, U can always find me in pony town BAİAİAİAİİA!!:3
+
+˗ˏˋ ★ ˎˊ˗
