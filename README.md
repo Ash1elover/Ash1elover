@@ -2,6 +2,8 @@
 
 ╭ She/her, fictosexsual , aroace
 
+╭ #1 Scar(wuwa) fan He's my husband guys trust / Furina kinnie u can go to my pinterest and look my fav chars! pint: ASH1E_BR0WN
+
 ╭ I don't like being called w ash unless ur my close friend or my friend!
 
 ╭ I'm in so much fandom! u can come and talk w me but If there's a fandom that Idk I'll look it just for u <3
