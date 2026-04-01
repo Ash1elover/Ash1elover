@@ -1,6 +1,6 @@
 ᯓ★ Ashe , Ash1e , Ashley !
 
-╭ She/her, fictosexsual , aroace
+╭ She/they, fictosexsual , aroace , genderfluid
 
 ╭ #1 Scar(wuwa) fan He's my husband guys trust / Furina kinnie u can go to my pinterest and look my fav chars! pint:https://pin.it/1NA9MovmD
 
