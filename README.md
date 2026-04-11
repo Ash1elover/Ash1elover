@@ -1,7 +1,7 @@
 ![Image](https://github.com/user-attachments/assets/b7f35723-aa0a-426c-ad6a-600f26f4c65e)
 ᯓ★ Ashe , Ash1e , Ashley, wemmbu, furina !
 
-╭ She/they, fictosexsual , aroace , genderfluid
+╭ She/they, fictosexsual , aroace , genderfluid, ISFP or ENFP
 
 ╭ #1 Scar(wuwa) fan He's my husband guys trust / Furina kinnie u can go to my pinterest and look my fav chars! pint:https://pin.it/1NA9MovmD
 
