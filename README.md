@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/b7f35723-aa0a-426c-ad6a-600f26f4c65e)
+(https://github.com/user-attachments/assets/b7f35723-aa0a-426c-ad6a-600f26f4c65e)
 ᯓ★ Ashe , Ash1e , Ashley, wemmbu, furina !
 
 ╭ She/they, fictosexsual , aroace , genderfluid, ISFP or ENFP
@@ -36,5 +36,5 @@ I respect OC x canon ships because I do it too:3(Don't worry, I'm trying my best
 
 ╭ Uhhh that's for now I guess! Know that I love u no matter what, U can always find me in pony town BAİAİAİAİİA!!:3
 
-![Image](https://github.com/user-attachments/assets/ef18aa0f-9591-401d-8aa0-b6f8381388c0)
+(https://github.com/user-attachments/assets/ef18aa0f-9591-401d-8aa0-b6f8381388c0)
                 ˗ˏˋ ★ ˎˊ˗
