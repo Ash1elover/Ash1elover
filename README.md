@@ -29,4 +29,5 @@
 
 ╭ Uhhh that's for now I guess! Know that I love u no matter what, U can always find me in pony town BAİAİAİAİİA!!:3
 
-˗ˏˋ ★ ˎˊ˗
+![Image](https://github.com/user-attachments/assets/ef18aa0f-9591-401d-8aa0-b6f8381388c0)
+                ˗ˏˋ ★ ˎˊ˗
