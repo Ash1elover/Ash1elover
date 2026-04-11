@@ -8,6 +8,8 @@
 ╭ I'm a rare shipper! But I respect your ships as long as they don't bother me,
 I respect OC x canon ships because I do it too:3(Don't worry, I'm trying my best not to alter the lore and storylines!)
 
+╭ I loovee talking about my ocs!!!^^ If u ask me about my oc I will yap about them to u If u wanna listen or curious about them!
+
 ╭ #1 Scar(wuwa) fan He's my husband guys trust / Furina kinnie u can go to my pinterest and look my fav chars! pint:https://pin.it/Ao7NItmrp
 
 ╭ I don't like being called w 'ash' unless ur my close friend or my friend!
