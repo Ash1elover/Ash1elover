@@ -35,3 +35,6 @@ I respect OC x canon ships because I do it too:3(Don't worry, I'm trying my best
 ╭ U can always find me w my bestie eva
 
 ╭ Uhhh that's for now I guess! Know that I love u no matter what, U can always find me in pony town BAİAİAİAİİA!!:3
+
+![Image](https://github.com/user-attachments/assets/406dc454-f24d-49f4-892b-1cab50240926)
+.✦ ݁˖
