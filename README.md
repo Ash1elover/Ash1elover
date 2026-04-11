@@ -1,4 +1,5 @@
-ᯓ★ Ashe , Ash1e , Ashley !
+![Image](https://github.com/user-attachments/assets/b7f35723-aa0a-426c-ad6a-600f26f4c65e)
+ᯓ★ Ashe , Ash1e , Ashley, wemmbu, furina !
 
 ╭ She/they, fictosexsual , aroace , genderfluid
 
@@ -10,8 +11,7 @@
 
 ╭ Please be careful when u talk w me I have anxiety and I'm a person who can get stress so easily and IM SO SHYY!?
 
-╭ Please don't bring up topics like alcohol in my presence, even jokes; I get sick because of major traumas I've experienced, This mistake might cause me to distance myself from u, or even hate u, I'm sowwy
-;(
+╭ I love watchin animes, Minecraft smps, gaming videos like final fantasy, dmc and resident evil! If you have any suggestions, I'll watch them:3
 
 ╭ I apologize if I remain silent during our conversation; I've only just met u and I don't know how to start a conversation!
 
