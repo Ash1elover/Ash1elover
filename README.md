@@ -3,6 +3,8 @@
 
 ╭ She/they, fictosexsual , aroace , genderfluid, ISFP or ENFP
 
+╭ I imagine myself as a cat core, so if you call me "pspsp" I'll come<3
+
 ╭ #1 Scar(wuwa) fan He's my husband guys trust / Furina kinnie u can go to my pinterest and look my fav chars! pint:https://pin.it/1NA9MovmD
 
 ╭ I don't like being called w 'ash' unless ur my close friend or my friend!
