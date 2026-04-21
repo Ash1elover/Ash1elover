@@ -24,15 +24,15 @@ I respect OC x canon ships because I do it too:3(Don't worry, I'm trying my best
 
 ╭ And if we become friends, even if I've never visited u before, please visit me if u have the time! I'm too shy to come, and I'm someone who needs time to get used to ppl
 
-╭ Dni If u are prosshipper, darkshipper or etc.
+╭ Dni If u are prosshipper, darkshipper or etc,makes jokes about alcohol(I have very deep traumas, events that I've tried to heal from, but I'm still heavily affected and can't recover) or try to make me go on fight :(
 
-╭ I'm friendly I don't bite lol
+╭ I'm friendly I don't bite lol, I love seeing new people around me, but my shyness prevents me from making friends!!!
 
-╭ English is NOT my first language it's my second language so sometimes I struggle w it and Im from Turkey!
+╭ English is NOT my first language it's my second language so sometimes I struggle w it and Im from Turkey! so please help me sometimes...
 
-╭ If any of my jokes offend u, please let me know and I'll stop for you
+╭ If any of my jokes offend u, please let me know and I'll stop for you<3
 
-╭ U can always find me w my bestie eva
+╭ U can always find me w my bestie eva!
 
 ╭ Uhhh that's for now I guess! Know that I love u no matter what, U can always find me in pony town BAİAİAİAİİA!!:3
 
