@@ -24,7 +24,7 @@ I respect OC x canon ships because I do it too:3(Don't worry, I'm trying my best
 
 ╭ And if we become friends, even if I've never visited u before, please visit me if u have the time! I'm too shy to come, and I'm someone who needs time to get used to ppl
 
-╭ Dni If u are prosshipper, darkshipper or etc,makes jokes about alcohol(I have very deep traumas, events that I've tried to heal from, but I'm still heavily affected and can't recover) or try to make me go on fight :(
+╭ Dni If u are prosshipper, darkshipper or etc,makes jokes about alcohol(I have very deep traumas, events that I've tried to heal from, but I'm still heavily affected and can't recover) or try to make me go on fight and ıf u are one of the boundary breakers pls dni!! ;(
 
 ╭ I'm friendly I don't bite lol, I love seeing new people around me, but my shyness prevents me from making friends!!!
 
