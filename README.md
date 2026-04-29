@@ -1,5 +1,5 @@
 ![Image](https://github.com/user-attachments/assets/93bd0a17-1d95-44dc-a508-cc34c490c077)
-ᯓ★ Ashe , Ash1e , Ashley , wemmbu , furina, kanade !
+ᯓ★ Ashe , Ash1e(Ashie) , Ashley , wemmbu , furina, kanade !
 
 ╭ She/they, fictosexsual , aroace , genderfluid, ISFP or ENFP
 
