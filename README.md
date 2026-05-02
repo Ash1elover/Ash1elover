@@ -14,6 +14,8 @@ I respect OC x canon ships because I do it too:3(Don't worry, I'm trying my best
 
 ╭ I don't like being called w 'ash' unless ur my close friend or my friend!
 
+<img width="498" height="269" alt="Image" src="https://github.com/user-attachments/assets/61deb4be-c817-4f87-b676-f3d3f3634d4a" />
+
 ╭ I'm in so much fandom! u can come and talk w me but If there's a fandom that Idk I'll look it just for u <3
 
 ╭ Please be careful when u talk w me I have anxiety and I'm a person who can get stress so easily and IM SO SHYY!?
