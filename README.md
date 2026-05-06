@@ -13,9 +13,11 @@
 
 <img width="500" height="230" alt="Image" src="https://github.com/user-attachments/assets/7667e3f1-6a13-47ce-bf19-312cf65fcf54" />
 
-
+- **I** **want** **to** **be** **with** **you** , **I** **want** **this** **always** **feel** **like..** **It's** **okay** **to** **be** **together...**
 
    ⤷  The only thing I want people to know about me is that I'm extremely shy, which makes it very difficult for me to talk to people (you guys). Secondly, I get stressed out very easily, Im like a ticking time bomb LOOLLL
+
+   ⤷ And If u really wanna know my fan chars..then!!! look at this(trust bro) ; https://pin.it/3oor3e7Y8
 
   ⤷  My first language isn't english, It's my second language ! I'm Turkish n sometimes I struggle w my english so be nice n help pls..
    
