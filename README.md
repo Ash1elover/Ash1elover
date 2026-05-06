@@ -2,7 +2,7 @@
 
 - ### **"A** lost  **cause"** -
 
-  ⤷ Ashe , Ashie , Ashley , Furina , Kanade , Hitori/Bocchi , Wemmbu ' ₊⊹
+  ⤷ Ashe , Ashie(Ash1e), Ashley , Furina , Kanade , Hitori/Bocchi , Wemmbu ' ₊⊹
   
     ⤷  Dont call me Ash unless ur my friend or my    close friend
 
