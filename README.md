@@ -3,6 +3,7 @@
 - ### **"A** lost  **cause"** -
 
   ⤷ Ashe , Ashie(Ash1e), Ashley , Furina , Kanade , Hitori/Bocchi , Wemmbu ' ₊⊹
+    I usually prefer Ashe :3 ᵎᵎ
   
     ⤷  Dont call me Ash unless ur my friend or my    close friend .ᐟ
 
@@ -15,9 +16,9 @@
 
 - ╰┈➤ ゛**I** **want** **to** **be** **with** **you** , **I** **want** **this** **always** **feel** **like..** **It's** **okay** **to** **be** **together** ゛
 
-   ⤷  The only thing I want people to know about me is that I'm extremely shy, which makes it very difficult for me to talk to people (you guys). Secondly, I get stressed out very easily, Im like a ticking time bomb LOOLLLᵎᵎ
+   ⤷  Things that I want people to know about me is that I'm extremely shy, which makes it very difficult for me to talk to people (you guys). Secondly, I get stressed out very easily, Im like a ticking time bomb LOOLLLᵎᵎ Third, I don't show you my true self until I get used to you, so if I respond slowly/late or not at all, know that I'm having a hard time, Fourthly, I imagine myself as half cat, half human, so if you call out to me like you would to a cat, I'll come ^..^.ᐟ
 
-   ⤷ And If u really wanna know my fan chars..then!!! look at this(trust bro) ; https://pin.it/3oor3e7Y8 ᥬᩤ
+   ⤷ And If u really wanna know my fan characters..then!!! look at this(trust bro) ; https://pin.it/3oor3e7Y8 ᥬᩤ
 
   ⤷  My first language isn't english, It's my second language ! I'm Turkish n sometimes I struggle w my english so be nice n help pls..‹𝟹
    
