@@ -16,7 +16,7 @@
 
 - ╰┈➤ ゛**I** **want** **to** **be** **with** **you** , **I** **want** **this** **always** **feel** **like..** **It's** **okay** **to** **be** **together** ゛
 
-   ⤷  Things that I want pppl to know about me is that I'm extremely shy, which makes it very difficult for me to talk to people (you guys). Secondly, I get stressed out very easily, Im like a ticking time bomb LOOLLLᵎᵎ Third, I don't show u my true self until I get used to u, so if I respond slowly/late or not at all, know that I'm having a hard time n Fourthly, I imagine myself as half cat, half human, so if u call out to me like u would to a cat, I'll come ^..^.ᐟ
+   ⤷  Things that I want pppl to know about me is that I'm extremely shy, which makes it very difficult for me to talk to people (you guys). Secondly, I get stressed out very easily, Im like a ticking time bomb LOOLLLᵎᵎ Third, I don't show u my true self until I get used to u, so if I respond slowly/late or not at all, know that I'm having a hard time n Fourthly, Even though I'm a very stressed and extremely shy person, once u get to know me, u'll realize I'm actually a very friendly person who enjoys messing w ppl. So please don't hesitate to be friends with me if u'd like <3
 
    ⤷ And If u really wanna know my fan characters..then!!! look at this(trust bro) ; https://pin.it/3oor3e7Y8 ᥬᩤ
 
