@@ -7,7 +7,7 @@
   
     ⤷  Dont call me Ash unless ur my friend or my close friend .ᐟ
 
-    ⤷ She/They , genderfuild , aroace , fictosexsual⸝⸝
+    ⤷ genderfuild , aroace , fictosexsual⸝⸝
 
      ⤷Dni If ur a proshipper, darkshipper or etc,
         If you are making jokes about alcohol(maybe similar), If ur a boundary breaker(example; wemfrags etc.), if you stress me out too much, I will probably hide u sorry .ᐟ
