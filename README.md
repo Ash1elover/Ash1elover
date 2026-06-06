@@ -25,7 +25,7 @@
    ⤷   Multifandom ! (✿◠ᴗ◠)
 
    
-╭ Uhh Thats all idk..I hope we will meet in pony town w u! I'm really shy..I have a habit of needing to warm up to people first.. But!!! I'm sure I'll love you all very much ! ˎˊ˗
+╭ Uhh Thats all idk..I hope we will meet in pony town w u! I'm really shy..I have a habit of needing to warm up to people first.. But!!! I'm sure I'll love you all very much ! Don't hesitate to come and talk to me !! ˎˊ˗
 
 *Steals ur pony n runs away* 
 <img width="490" height="350" alt="Image" src="https://github.com/user-attachments/assets/693fa2c4-b300-446c-a8f0-ae6830dd688d" />
