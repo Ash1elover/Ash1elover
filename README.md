@@ -1,6 +1,6 @@
 <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/84d564cf-7a8a-4326-8dee-cf096f9eaf21" />
 
-- ### **"A** lost  **cause"** -
+- ### ${\textsf{\color{#2548aa} A lost cause}}$
 
   ⤷ Ashe , Ashie(Ash1e), Ashley , Furina , Kanade , Hitori/Bocchi , Wemmbu ' ₊⊹
     I usually prefer Ashe :3 ᵎᵎ
