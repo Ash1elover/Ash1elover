@@ -4,7 +4,7 @@
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/7e5afb47-73c7-4374-a3b4-f51b4aed0ab2"/>
 
-${\textsf{\color{#683176}𝘀𝗵𝗲/𝘁𝗵𝗲y 𝗔𝘀𝗵𝗲/𝗔𝘀𝗵𝗶𝗲/𝗪𝗲𝗺𝗺𝗯𝘂/𝗞𝗮𝗻𝗮𝗱𝗲/𝗙𝘂𝗿𝗶𝗻𝗮}}$
+${\textsf{\color{#683176}𝘀𝗵𝗲/𝘁𝗵𝗲y|𝗔𝘀𝗵𝗲/𝗔𝘀𝗵𝗶𝗲/𝗪𝗲𝗺𝗺𝗯𝘂/𝗞𝗮𝗻𝗮𝗱𝗲/𝗙𝘂𝗿𝗶𝗻𝗮}}$
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/dd9e3c32-d1e5-4f63-8e41-448fc8228ed3"/>
 
@@ -16,6 +16,8 @@ ${\textsf{\color{#f5fefd}"ᴵ ᵈᵒⁿᵗ ᵗʰⁱⁿᵏ ᴵ'ˡˡ ˡᵃˢᵗ}}$
 
 ${\textsf{\color{#4c9db0}𝐃𝐍İ !}}$
 ${\textsf{\color{#ffebaf}𝖻𝗈𝗎𝗇𝖽𝗋𝗒 𝖻𝗋𝖾𝖺𝗄𝖾𝗋𝗌(𝖿𝗅𝖺𝗆𝖻𝗎 𝖾𝗍𝖼.) , 𝗉𝗋𝗈𝗌𝗁𝗂𝗉𝗉𝖾𝗋 𝖾𝗍𝖼. , 𝗆𝖺𝗄𝖾𝗌 𝗃𝗈𝗄𝖾𝗌 𝖺𝖻𝗈𝗎𝗍 𝖺𝗅𝖼𝗈𝗁𝗈𝗅 , 𝗆𝖺𝗄𝖾𝗌 𝗃𝗈𝗄𝖾𝗌 𝖺𝖻𝗈𝗎𝗍 𝗆𝗒 𝖿𝗋𝗂𝖾𝗇𝖽𝗌(𝖻𝗎𝗅𝗅𝗂𝖾𝗌) = 𝖨'𝗅𝗅 𝖾𝗂𝗍𝗁𝖾𝗋 𝗁𝗂𝖽𝖾 u, 𝗂𝗀𝗇𝗈𝗋𝖾 𝗎}}$
+
+<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/009be13b-67ef-44ae-9afd-16c5cc4f0593" />
 
 ${\textsf{\color{#aa405b}⤷ Multifandom!}}$
 
