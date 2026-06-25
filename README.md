@@ -30,6 +30,6 @@ ${\textsf{\color{#802b5b}𝗜𝗺 𝘀𝗼 𝗹𝗮𝘇𝘆 𝘁𝗼 𝗺𝗮�
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/bbbcb596-d38e-4412-8752-0b3914dea4a8" />
 
-${\textsf{\color{#aa405b}︵wemmbu was here (✿◠ᴗ◠)}}$
+${\textsf{\color{#aa405b}︵wemmbu was here(✿◠ᴗ◠)}}$
 
 <img width="735" height="545" alt="Image" src="https://github.com/user-attachments/assets/dd6b0620-d328-4310-bfe6-707c8ed85d81" />
