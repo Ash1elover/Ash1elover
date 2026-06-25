@@ -4,7 +4,7 @@
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/7e5afb47-73c7-4374-a3b4-f51b4aed0ab2"/>
 
-${\textsf{\color{#683176}𝘀𝗵𝗲/𝘁𝗵𝗲y}}$
+${\textsf{\color{#683176}𝘀𝗵𝗲/𝘁𝗵𝗲y | tr/eng}}$
 ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦𝐛𝐮/𝐊𝐚𝐧𝐚𝐝𝐞/𝐅𝐮𝐫𝐢𝐧𝐚}}$
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/dd9e3c32-d1e5-4f63-8e41-448fc8228ed3"/>
