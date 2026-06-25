@@ -11,6 +11,8 @@ ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦�
 
 ${\textsf{\color{#c3d2de}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭 }}$
 
+<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/883456e2-2832-4dbc-8380-2a3241b00e5c" />
+
 ${\textsf{\color{#f5fefd}"ᴵ ᵈᵒⁿᵗ ᵗʰⁱⁿᵏ ᴵ'ˡˡ ˡᵃˢᵗ}}$ ${\textsf{\color{#91b2cd}ᵃⁿᵒᵗʰᵉʳ ˢᵘᵐᵐᵉʳ, ᵇʳᵒ"}}$
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/1da2ea64-c37b-46d3-b9ad-27c7272a4712" />
