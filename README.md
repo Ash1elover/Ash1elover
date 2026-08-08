@@ -26,7 +26,7 @@ ${\textsf{\color{#aa405b}⤷ Multifandom!}}$
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/879eedf8-dc4a-4b13-b8ac-d5fb3c20b6d7" />
 
-${\textsf{\color{#802b5b}𝗜𝗺 𝘀𝗼 𝗹𝗮𝘇𝘆 𝘁𝗼 𝗺𝗮𝗸𝗲 𝗮 atabook n 𝘀𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲 𝗯𝘂𝘁 𝗜'𝗹𝗹 𝗽𝗿𝗼𝗯𝗮𝗯𝗹𝘆 𝗱𝗼 𝗶𝘁 𝘀𝗼𝗺𝗲𝘁𝗶𝗺𝗲 𝘁𝗵𝗶𝘀 𝘆𝗲𝗮𝗿, 𝗱𝗼𝗻'𝘁 𝘄𝗼𝗿𝗿𝘆!}}$
+${\textsf{\color{#802b5b}𝗜𝗺 𝘀𝗼 𝗹𝗮𝘇𝘆 𝘁𝗼 𝗺𝗮𝗸𝗲 𝗮 atabook n 𝘀𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲 𝗯𝘂𝘁 𝗜'𝗹𝗹 𝗽𝗿𝗼𝗯𝗮𝗯𝗹𝘆 𝗱𝗼 𝗶𝘁 𝘀𝗼𝗺𝗲𝘁𝗶𝗺𝗲 𝘁𝗵𝗶𝘀 𝘆𝗲𝗮𝗿, 𝗱𝗼𝗻'𝘁 𝘄𝗼𝗿𝗿𝘆!!}}$
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/bbbcb596-d38e-4412-8752-0b3914dea4a8" />
 
