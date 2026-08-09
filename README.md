@@ -26,7 +26,7 @@ ${\textsf{\color{#aa405b}⤷ Multifandom!}}$
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/879eedf8-dc4a-4b13-b8ac-d5fb3c20b6d7" />
 
-${\textsf{\color{#802b5b}Making strawpage, 𝗱𝗼𝗻'𝘁 𝘄𝗼𝗿𝗿𝘆!!}}$
+${\textsf{\color{#802b5b}This github will be remaked!}}$
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/bbbcb596-d38e-4412-8752-0b3914dea4a8" />
 
