@@ -26,7 +26,7 @@ ${\textsf{\color{#aa405b}⤷ Multifandom!}}$
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/879eedf8-dc4a-4b13-b8ac-d5fb3c20b6d7" />
 
-${\textsf{\color{#802b5b}You can call me 'he',but please, BUT PLEASE, keep it low as possible If you come to me and complain, 'Ah, Ashe, if that's the case, why do you allow the use of 'he'?', it's because I used to disguise myself as a boy a lot when I was a child and I'm letting this because I'm trying to come to terms with my past, if you're going to complain, the door is over there}}$
+${\textsf{\color{#802b5b}I have stress problems so please be carefull w me..I can get stressed easily}}$
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/bbbcb596-d38e-4412-8752-0b3914dea4a8" />
 
