@@ -14,9 +14,9 @@ ${\textsf{\color{#643d7a}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳�
 
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/60a2ebe574cb3a8d2cec107176fdc151358c83af/q1.gif)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=6D17CEE3&width=435&lines=my+doomsday+duo+twin;%40Sxarixiez)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=6D17CEE3&width=435&lines=my+spoke;+%40Sxarixiez)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=442F8BE0&width=435&lines=my+taxduo%2Fodyssey+duo+n+devious+duo;%40VoodooPeople7)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=442F8BE0&width=435&lines=my+eggchan%2Fmy+Wifies;%40VoodooPeople7)](https://git.io/typing-svg)
 
 ![Image alt](https://github.com/Ash1elover/Ash1elover/blob/c2d15b3587f0337cc9e34d693da51203a678796c/f85da9c3763b5b1a7a1b9824906e8b30.gif)
 ${\textsf{\color{#6d339f}𝐃𝐍İ !}}$
