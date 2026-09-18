@@ -42,3 +42,6 @@ ${\textsf{\color{#262345}⤷ Multifandom!}}$
  ${\textsf{\color{#8e284e} ݁ ˖Ი𐑼ֶָ֢ I'm really shy... I'm so embarrassed to talk w others, I don't bite guys}}$
  ${\textsf{\color{#4f3460} ݁ ˖Ი𐑼ֶָ֢ I love learning new things!(not in school grr) I'm a curious person but innocent too so..}}$
   ${\textsf{\color{#343a60} ݁ ˖Ი𐑼ֶָ֢ U can learn about me in my strawpage :3!}}$
+</details>
+
+![Image alt](https://github.com/Ash1elover/Ash1elover/blob/bf98f4f14fd3b93ce9c029f4e6ba57643e7ebae9/IMG_20260919_013312.png)
