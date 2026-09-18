@@ -8,6 +8,8 @@ ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦�
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/027958cbca1bd78a08b4f0133017af8e5042e74f/IMG_20260918_232831.png)
 ${\textsf{\color{#c3d2de}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭}}$
 
+![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/60a2ebe574cb3a8d2cec107176fdc151358c83af/q1.gif)
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=320F6A&width=435&lines=my+doomsday+duo+twin%3A;%40sxarixiez)](https://git.io/typing-svg)
 
 ${\textsf{\color{#4c9db0}𝐃𝐍İ !}}$
