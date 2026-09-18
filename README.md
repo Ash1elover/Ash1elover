@@ -1,4 +1,4 @@
-![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/7a3d8bc01dbbeb01df8b9d3e58cf75c4a2e0eb0f/1a527e2e7bffba3c44a1de330d58d27c.jpg)
+![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/7a315684a02d69f14b6f43850d962f8b00994349/6905b382dab1f255181d7883f6248037.png)
 
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=472287FD&width=435&lines=I'm+not+a+lost+cause;but..I+failed+you)](https://git.io/typing-svg)
 
