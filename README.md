@@ -2,20 +2,13 @@
 
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=472287FD&width=435&lines=I'm+not+a+lost+cause;but..I+failed+you)](https://git.io/typing-svg)
 
- remaking my github ⚠️
-
 ${\textsf{\color{#683176}𝘀𝗵𝗲/𝘁𝗵𝗲y | tr/eng}}$
 ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦𝐛𝐮/𝐊𝐚𝐧𝐚𝐝𝐞/𝐅𝐮𝐫𝐢𝐧𝐚}}$
 
-<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/dd9e3c32-d1e5-4f63-8e41-448fc8228ed3"/>
+![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/027958cbca1bd78a08b4f0133017af8e5042e74f/IMG_20260918_232831.png)
+${\textsf{\color{#c3d2de}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭}}$
 
-${\textsf{\color{#c3d2de}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭 }}$
-
-<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/883456e2-2832-4dbc-8380-2a3241b00e5c" />
-
-${\textsf{\color{#f5fefd}"ᴵ ᵈᵒⁿᵗ ᵗʰⁱⁿᵏ ᴵ'ˡˡ ˡᵃˢᵗ}}$ ${\textsf{\color{#91b2cd}ᵃⁿᵒᵗʰᵉʳ ˢᵘᵐᵐᵉʳ, ᵇʳᵒ"}}$
-
-<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/1da2ea64-c37b-46d3-b9ad-27c7272a4712" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=320F6A&width=435&lines=my+doomsday+duo+twin%3A;%40sxarixiez)](https://git.io/typing-svg)
 
 ${\textsf{\color{#4c9db0}𝐃𝐍İ !}}$
 ${\textsf{\color{#ffebaf}𝖻𝗈𝗎𝗇𝖽𝗋𝗒 𝖻𝗋𝖾𝖺𝗄𝖾𝗋𝗌(𝖿𝗅𝖺𝗆𝖻𝗎 𝖾𝗍𝖼.) , 𝗉𝗋𝗈𝗌𝗁𝗂𝗉𝗉𝖾𝗋 𝖾𝗍𝖼. , 𝗆𝖺𝗄𝖾𝗌 𝗃𝗈𝗄𝖾𝗌 𝖺𝖻𝗈𝗎𝗍 𝖺𝗅𝖼𝗈𝗁𝗈𝗅 , 𝗆𝖺𝗄𝖾𝗌 𝗃𝗈𝗄𝖾𝗌 𝖺𝖻𝗈𝗎𝗍 𝗆𝗒 𝖿𝗋𝗂𝖾𝗇𝖽𝗌(𝖻𝗎𝗅𝗅𝗂𝖾𝗌) = 𝖨'𝗅𝗅 𝖾𝗂𝗍𝗁𝖾𝗋 𝗁𝗂𝖽𝖾 u, 𝗂𝗀𝗇𝗈𝗋𝖾 𝗎}}$
