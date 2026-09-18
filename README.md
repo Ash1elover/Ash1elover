@@ -6,7 +6,7 @@ ${\textsf{\color{#683176}𝘀𝗵𝗲/𝘁𝗵𝗲y | tr/eng}}$
 ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦𝐛𝐮/𝐊𝐚𝐧𝐚𝐝𝐞/𝐅𝐮𝐫𝐢𝐧𝐚}}$
 
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/027958cbca1bd78a08b4f0133017af8e5042e74f/IMG_20260918_232831.png)
-${\textsf{\color{#c3d2de}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭}}$
+${\textsf{\color{#643d7a}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭}}$
 
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/60a2ebe574cb3a8d2cec107176fdc151358c83af/q1.gif)
 
