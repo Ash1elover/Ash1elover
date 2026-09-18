@@ -23,6 +23,15 @@ ${\textsf{\color{#4c2172}𝖻𝗈𝗎𝗇𝖽𝗋𝗒 𝖻𝗋𝖾𝖺𝗄𝖾�
 
 ${\textsf{\color{#262345}⤷ Multifandom!}}$
 
+<details>
+  <summary> ${\textsf{\color{#802b5b}Fictionkins / Simps!}}$</summary>
+ 
+  ${\textsf{\color{#66489f}Fictionkins; Wemmbu , Parrotx2 , Furina , Kanade , Bocchi , Sparkle , Cipher , Nihilux , Twixxel , Evernight , Mizuki}}$
+  
+  Simps; Time shadow C , Scar(wuwa) , Anaxa , Acheron , Arlec , Nagito , Hajime , The Herta and more !
+</details>
+
+
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/879eedf8-dc4a-4b13-b8ac-d5fb3c20b6d7" />
 
 ${\textsf{\color{#802b5b}I have stress problems so please be carefull w me..I can get stressed easily}}$
