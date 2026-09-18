@@ -7,10 +7,13 @@ ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦�
 
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/027958cbca1bd78a08b4f0133017af8e5042e74f/IMG_20260918_232831.png)
 ${\textsf{\color{#643d7a}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭}}$
+![image alt](https://github.com/Ash1elover/Ash1elover/blob/3e3532f20af69c8df65f7db0e527c1aa0892a452/IMG_20260918_234634.png)
 
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/60a2ebe574cb3a8d2cec107176fdc151358c83af/q1.gif)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=320F6A&width=435&lines=my+doomsday+duo+twin%3A;%40sxarixiez)](https://git.io/typing-svg)
+
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=442F8BE0&width=435&lines=my+taxduo%2Fodyssey+duo+n+devious+duo;%40VoodooPeople7)](https://git.io/typing-svg)
 
 ${\textsf{\color{#4c9db0}𝐃𝐍İ !}}$
