@@ -22,9 +22,8 @@ ${\textsf{\color{#643d7a}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳�
 ${\textsf{\color{#6d339f}𝐃𝐍İ !}}$
 ${\textsf{\color{#4c2172}𝖻𝗈𝗎𝗇𝖽𝗋𝗒 𝖻𝗋𝖾𝖺𝗄𝖾𝗋𝗌(𝖿𝗅𝖺𝗆𝖻𝗎 𝖾𝗍𝖼.) , 𝗉𝗋𝗈𝗌𝗁𝗂𝗉𝗉𝖾𝗋 𝖾𝗍𝖼. , 𝗆𝖺𝗄𝖾𝗌 𝗃𝗈𝗄𝖾𝗌 𝖺𝖻𝗈𝗎𝗍 𝖺𝗅𝖼𝗈𝗁𝗈𝗅 , 𝗆𝖺𝗄𝖾𝗌 𝗃𝗈𝗄𝖾𝗌 𝖺𝖻𝗈𝗎𝗍 𝗆𝗒 𝖿𝗋𝗂𝖾𝗇𝖽𝗌(𝖻𝗎𝗅𝗅𝗂𝖾𝗌) = 𝖨'𝗅𝗅 𝖾𝗂𝗍𝗁𝖾𝗋 𝗁𝗂𝖽𝖾 u, 𝗂𝗀𝗇𝗈𝗋𝖾 𝗎}}$
 
-<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/009be13b-67ef-44ae-9afd-16c5cc4f0593" />
 
-${\textsf{\color{#262345}⤷ Multifandom!}}$
+${\textsf{\color{#262345}⤷ Multifandom! If I don't know ur fandom, I'll be go on look at it for u}}$
 
 <details>
   <summary> ${\textsf{\color{#66489f}Fictionkins / Simps!}}$</summary>
