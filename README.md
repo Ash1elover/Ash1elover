@@ -46,5 +46,8 @@ ${\textsf{\color{#262345}⤷ Multifandom!}}$
 
 ![Image alt](https://github.com/Ash1elover/Ash1elover/blob/bf98f4f14fd3b93ce9c029f4e6ba57643e7ebae9/IMG_20260919_013312.png)
 
+${\textsf{\color{#3D697CEB} "𝗈𝗁, 𝖫𝗈𝗈𝗄!! 𝖨𝗍'𝗌 𝖬𝗂𝗇𝗎𝗍𝖾𝖳𝖾𝖼𝗁𝗁𝗁𝗁!!- 𝖠𝖠-"}}$
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=PT+Sans&pause=1000&color=A4D21AE9&width=435&lines=%22Wifies..Thank+you+for+being+my+friend%22;%22anytime%2C+dude%22)](https://git.io/typing-svg)
-![Image alt]()
+![Image alt](https://github.com/Ash1elover/Ash1elover/blob/0e6039fc7c6dae93ee09f317b185b55ddb386fba/188e58bcde94f04ce74559eb543fc39a.jpg)
+${\textsf{\color{#53CA1DE9} The art's are not mine! credits to the real artist's !}}$
