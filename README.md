@@ -7,6 +7,9 @@ ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦�
 
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/027958cbca1bd78a08b4f0133017af8e5042e74f/IMG_20260918_232831.png)
 ${\textsf{\color{#643d7a}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭}}$
+
+<kbd>[**✦ Atabook**](https://ashebrowni.straw.page)</kbd> &nbsp;&nbsp; <kbd>[**✦ Strawpage**](https://ashebrowni.atabook.org/)</kbd>
+
 ![image alt](https://github.com/Ash1elover/Ash1elover/blob/3e3532f20af69c8df65f7db0e527c1aa0892a452/IMG_20260918_234634.png)
 
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/60a2ebe574cb3a8d2cec107176fdc151358c83af/q1.gif)
