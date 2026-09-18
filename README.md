@@ -45,3 +45,6 @@ ${\textsf{\color{#262345}⤷ Multifandom!}}$
 </details>
 
 ![Image alt](https://github.com/Ash1elover/Ash1elover/blob/bf98f4f14fd3b93ce9c029f4e6ba57643e7ebae9/IMG_20260919_013312.png)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=PT+Sans&pause=1000&color=A4D21AE9&width=435&lines=%22Wifies..Thank+you+for+being+my+friend%22;%22anytime%2C+dude%22)](https://git.io/typing-svg)
+![Image alt]()
