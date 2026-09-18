@@ -31,11 +31,14 @@ ${\textsf{\color{#262345}⤷ Multifandom!}}$
   ${\textsf{\color{#aa405b}Simps; Time shadow C , Scar(wuwa) , Anaxa , Acheron , Arlec , Nagito , Hajime , The Herta and more !}}$
 </details>
 
+![Image alt](https://github.com/Ash1elover/Ash1elover/blob/14226b53946d6c03e74cfc98db91ee7a52bbf71e/2a11aba647a6d425177f3aa795f938a1.jpg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=PT+Sans&pause=1000&color=C41E50E9&width=435&lines=%22Mapicc%2C+What's+your+wish%3F%22;.++.++.;%22I+wish+I+had+never+met+you.%22)](https://git.io/typing-svg)
 
-<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/879eedf8-dc4a-4b13-b8ac-d5fb3c20b6d7" />
-
-${\textsf{\color{#802b5b}I have stress problems so please be carefull w me..I can get stressed easily}}$
-
-<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/bbbcb596-d38e-4412-8752-0b3914dea4a8" />
-
-${\textsf{\color{#aa405b}︵wemmbu was here(✿◠ᴗ◠)}}$
+<details>
+  <summary> 
+ ${\textsf{\color{#dc143c} Some things about me!}}$</summary>
+ ${\textsf{\color{#b2216b} ݁ ˖Ი𐑼ֶָ֢ I can get stressed easily so pls be careful!}}$
+ 
+ ${\textsf{\color{#8e284e} ݁ ˖Ი𐑼ֶָ֢ I'm really shy... I'm so embarrassed to talk w others, I don't bite guys}}$
+ ${\textsf{\color{#4f3460} ݁ ˖Ი𐑼ֶָ֢ I love learning new things!(not in school grr) I'm a curious person but innocent too so..}}$
+  ${\textsf{\color{#343a60} ݁ ˖Ი𐑼ֶָ֢ U can learn about me in my strawpage :3!}}$
