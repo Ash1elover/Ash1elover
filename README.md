@@ -24,9 +24,9 @@ ${\textsf{\color{#4c2172}𝖻𝗈𝗎𝗇𝖽𝗋𝗒 𝖻𝗋𝖾𝖺𝗄𝖾�
 ${\textsf{\color{#262345}⤷ Multifandom!}}$
 
 <details>
-  <summary> ${\textsf{\color{#802b5b}Fictionkins / Simps!}}$</summary>
+  <summary> ${\textsf{\color{#66489f}Fictionkins / Simps!}}$</summary>
  
-  ${\textsf{\color{#66489f}Fictionkins; Wemmbu , Parrotx2 , Furina , Kanade , Bocchi , Sparkle , Cipher , Nihilux , Twixxel , Evernight , Mizuki}}$
+  ${\textsf{\color{#802b5b}Fictionkins; Wemmbu , Parrotx2 , Furina , Kanade , Bocchi , Sparkle , Cipher , Nihilux , Twixxel , Evernight , Mizuki}}$
   
   Simps; Time shadow C , Scar(wuwa) , Anaxa , Acheron , Arlec , Nagito , Hajime , The Herta and more !
 </details>
