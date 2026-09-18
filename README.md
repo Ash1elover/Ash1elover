@@ -1,8 +1,8 @@
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/7a3d8bc01dbbeb01df8b9d3e58cf75c4a2e0eb0f/1a527e2e7bffba3c44a1de330d58d27c.jpg)
 
- ${\textsf{\color{#c4d6b0}"ᴴᵉʸ, ᴱᵍᵍ,}}$ ${\textsf{\color{#58355e}ʷʰʸ ⁱˢ ᵗʰᵉ ˢᵉᵃ ᵍˡᵒʷⁱⁿᵍ?"}}$
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=472287FD&width=435&lines=I'm+not+a+lost+cause;but..I+failed+you)](https://git.io/typing-svg)
 
-<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/7e5afb47-73c7-4374-a3b4-f51b4aed0ab2"/>
+ remaking my github ⚠️
 
 ${\textsf{\color{#683176}𝘀𝗵𝗲/𝘁𝗵𝗲y | tr/eng}}$
 ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦𝐛𝐮/𝐊𝐚𝐧𝐚𝐝𝐞/𝐅𝐮𝐫𝐢𝐧𝐚}}$
