@@ -28,7 +28,7 @@ ${\textsf{\color{#262345}⤷ Multifandom!}}$
  
   ${\textsf{\color{#802b5b}Fictionkins; Wemmbu , Parrotx2 , Furina , Kanade , Bocchi , Sparkle , Cipher , Nihilux , Twixxel , Evernight , Mizuki}}$
   
-  Simps; Time shadow C , Scar(wuwa) , Anaxa , Acheron , Arlec , Nagito , Hajime , The Herta and more !
+  ${\textsf{\color{#aa405b}Simps; Time shadow C , Scar(wuwa) , Anaxa , Acheron , Arlec , Nagito , Hajime , The Herta and more !}}$
 </details>
 
 
