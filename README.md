@@ -15,7 +15,8 @@ ${\textsf{\color{#643d7a}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳�
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=442F8BE0&width=435&lines=my+taxduo%2Fodyssey+duo+n+devious+duo;%40VoodooPeople7)](https://git.io/typing-svg)
 
-${\textsf{\color{#4c9db0}𝐃𝐍İ !}}$
+![Image alt](https://github.com/Ash1elover/Ash1elover/blob/c2d15b3587f0337cc9e34d693da51203a678796c/f85da9c3763b5b1a7a1b9824906e8b30.gif)
+${\textsf{\color{#6d339f}𝐃𝐍İ !}}$
 ${\textsf{\color{#ffebaf}𝖻𝗈𝗎𝗇𝖽𝗋𝗒 𝖻𝗋𝖾𝖺𝗄𝖾𝗋𝗌(𝖿𝗅𝖺𝗆𝖻𝗎 𝖾𝗍𝖼.) , 𝗉𝗋𝗈𝗌𝗁𝗂𝗉𝗉𝖾𝗋 𝖾𝗍𝖼. , 𝗆𝖺𝗄𝖾𝗌 𝗃𝗈𝗄𝖾𝗌 𝖺𝖻𝗈𝗎𝗍 𝖺𝗅𝖼𝗈𝗁𝗈𝗅 , 𝗆𝖺𝗄𝖾𝗌 𝗃𝗈𝗄𝖾𝗌 𝖺𝖻𝗈𝗎𝗍 𝗆𝗒 𝖿𝗋𝗂𝖾𝗇𝖽𝗌(𝖻𝗎𝗅𝗅𝗂𝖾𝗌) = 𝖨'𝗅𝗅 𝖾𝗂𝗍𝗁𝖾𝗋 𝗁𝗂𝖽𝖾 u, 𝗂𝗀𝗇𝗈𝗋𝖾 𝗎}}$
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/009be13b-67ef-44ae-9afd-16c5cc4f0593" />
