@@ -1,4 +1,4 @@
-
+![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/7a3d8bc01dbbeb01df8b9d3e58cf75c4a2e0eb0f/1a527e2e7bffba3c44a1de330d58d27c.jpg)
 
  ${\textsf{\color{#c4d6b0}"ᴴᵉʸ, ᴱᵍᵍ,}}$ ${\textsf{\color{#58355e}ʷʰʸ ⁱˢ ᵗʰᵉ ˢᵉᵃ ᵍˡᵒʷⁱⁿᵍ?"}}$
 
