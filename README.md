@@ -11,8 +11,7 @@ ${\textsf{\color{#643d7a}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳�
 
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/60a2ebe574cb3a8d2cec107176fdc151358c83af/q1.gif)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=320F6A&width=435&lines=my+doomsday+duo+twin%3A;%40sxarixiez)](https://git.io/typing-svg)
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=6D17CEE3&width=435&lines=my+doomsday+duo+twin;%40Sxarixiez)](https://git.io/typing-svg)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=19&pause=1000&color=442F8BE0&width=435&lines=my+taxduo%2Fodyssey+duo+n+devious+duo;%40VoodooPeople7)](https://git.io/typing-svg)
 
