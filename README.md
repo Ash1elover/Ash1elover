@@ -28,9 +28,9 @@ ${\textsf{\color{#262345}⤷ Multifandom! If I don't know ur fandom, I'll be go 
 <details>
   <summary> ${\textsf{\color{#66489f}Fictionkins / Simps!}}$</summary>
  
-  ${\textsf{\color{#802b5b}Fictionkins; Wemmbu , Parrotx2 , Furina , Kanade , Bocchi , Sparkle , Cipher , Nihilux , Twixxel , Evernight , Mizuki}}$
+  ${\textsf{\color{#802b5b}Fictionkins; Wemmbu , Parrotx2 , Furina , Kanade , Bocchi , Cipher , Twixxel , Mizuki}}$
   
-  ${\textsf{\color{#aa405b}Simps; Time shadow C , Scar(wuwa) , Anaxa , Acheron , Arlec , Nagito , Hajime , The Herta and more !}}$
+  ${\textsf{\color{#aa405b}Simps; Time shadow C , Scar(wuwa) , Anaxa , Acheron , Arlec , Nagito , Sparkle , Nihilux , Hajime , Evernight , The Herta and more !}}$
 </details>
 
 ![Image alt](https://github.com/Ash1elover/Ash1elover/blob/14226b53946d6c03e74cfc98db91ee7a52bbf71e/2a11aba647a6d425177f3aa795f938a1.jpg)
