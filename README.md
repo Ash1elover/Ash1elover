@@ -8,7 +8,7 @@ ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦�
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/027958cbca1bd78a08b4f0133017af8e5042e74f/IMG_20260918_232831.png)
 ${\textsf{\color{#643d7a}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭}}$
 
-<kbd>[**✦ Atabook**](https://ashebrowni.straw.page)</kbd> &nbsp;&nbsp; <kbd>[**✦ Strawpage**](https://ashebrowni.atabook.org/)</kbd>
+<kbd>[**✦ Strawpage**](https://ashebrowni.straw.page)</kbd> &nbsp;&nbsp; <kbd>[**✦ Atabook**](https://ashebrowni.atabook.org/)</kbd>
 
 ![image alt](https://github.com/Ash1elover/Ash1elover/blob/3e3532f20af69c8df65f7db0e527c1aa0892a452/IMG_20260918_234634.png)
 
@@ -48,7 +48,7 @@ ${\textsf{\color{#262345}⤷ Multifandom! If I don't know ur fandom, I'll be go 
 
 ![Image alt](https://github.com/Ash1elover/Ash1elover/blob/bf98f4f14fd3b93ce9c029f4e6ba57643e7ebae9/IMG_20260919_013312.png)
 
-${\textsf{\color{#3D697CEB} "𝗈𝗁, 𝖫𝗈𝗈𝗄!! 𝖨𝗍'𝗌 𝖬𝗂𝗇𝗎𝗍𝖾𝖳𝖾𝖼𝗁𝗁𝗁𝗁!!- 𝖠𝖠-"}}$
+  ${\textsf{\color{#3D697CEB} "𝗈𝗁, 𝖫𝗈𝗈𝗄!! 𝖨𝗍'𝗌 𝖬𝗂𝗇𝗎𝗍𝖾𝖳𝖾𝖼𝗁𝗁𝗁𝗁!!- 𝖠𝖠-"}}$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=PT+Sans&pause=1000&color=A4D21AE9&width=435&lines=%22Wifies..Thank+you+for+being+my+friend%22;%22anytime%2C+dude%22)](https://git.io/typing-svg)
 ![Image alt](https://github.com/Ash1elover/Ash1elover/blob/0e6039fc7c6dae93ee09f317b185b55ddb386fba/188e58bcde94f04ce74559eb543fc39a.jpg)
