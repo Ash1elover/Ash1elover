@@ -52,4 +52,7 @@ ${\textsf{\color{#3D697CEB} "𝗈𝗁, 𝖫𝗈𝗈𝗄!! 𝖨𝗍'𝗌 𝖬𝗂
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=PT+Sans&pause=1000&color=A4D21AE9&width=435&lines=%22Wifies..Thank+you+for+being+my+friend%22;%22anytime%2C+dude%22)](https://git.io/typing-svg)
 ![Image alt](https://github.com/Ash1elover/Ash1elover/blob/0e6039fc7c6dae93ee09f317b185b55ddb386fba/188e58bcde94f04ce74559eb543fc39a.jpg)
+<a href="https://open.spotify.com/user/31jsr4cjfuv723q5otumqe6jt4uy">
+  <img src="https://spotify-recently-played.jeffreyca.workers.dev/svg?user=31jsr4cjfuv723q5otumqe6jt4uy&amp;header=0&amp;logo=0&amp;avatar=0&amp;explicit=0&amp;footer=wave" alt="Spotify recently played" width="400" />
+</a>
 ${\textsf{\color{#53CA1DE9} The art's are not mine! credits to the real artist's !}}$
