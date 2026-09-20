@@ -41,7 +41,7 @@ ${\textsf{\color{#262345}⤷ Multifandom! If I don't know ur fandom, I'll be go 
  ${\textsf{\color{#dc143c} Some things about me!}}$</summary>
  ${\textsf{\color{#b2216b} ݁ ˖Ი𐑼ֶָ֢ I can get stressed easily so pls be careful!}}$
  
- ${\textsf{\color{#8e284e} ݁ ˖Ი𐑼ֶָ֢ I'm really shy... I'm so embarrassed to talk w others, I don't bite guys}}$
+ ${\textsf{\color{#8e284e} ݁ ˖Ი𐑼ֶָ֢ I'm really shy... I'm so embarrassed to talk w others, I don't bite guys pls}}$
  ${\textsf{\color{#4f3460} ݁ ˖Ი𐑼ֶָ֢ I love learning new things!(not in school grr) I'm a curious person but innocent too so..}}$
   ${\textsf{\color{#343a60} ݁ ˖Ი𐑼ֶָ֢ U can learn about me in my strawpage :3!}}$
 </details>
