@@ -6,7 +6,7 @@
 ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦𝐛𝐮/𝐊𝐚𝐧𝐚𝐝𝐞/𝐅𝐮𝐫𝐢𝐧𝐚}}$
 
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/f2595c3ff26d4a52f432535a1705aea52a418489/IMG_20260921_214833.png)
-${\textsf{\color{#643d7a}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭}}$
+<p align="center">${\textsf{\color{#643d7a}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭}}$
 
 <kbd>[**✦ Strawpage**](https://ashebrowni.straw.page)</kbd> &nbsp;&nbsp;<kbd>[**✦ Atabook**](https://ashebrowni.atabook.org/)</kbd>
 
