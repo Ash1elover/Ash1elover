@@ -2,11 +2,11 @@
 
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=472287FD&width=435&lines=I'm+not+a+lost+cause;but..I+failed+you)](https://git.io/typing-svg)
 
-<p align="center">${\textsf{\color{#683176}𝘀𝗵𝗲/𝘁𝗵𝗲y | tr/eng}}$
+<p align="center">${\textsf{\color{#683176}𝘴𝘩𝘦 / 𝘩𝘦 / 𝘛𝘩𝘦𝘺 | 𝘛𝘳 / 𝘌𝘯𝘨}}$
 ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦𝐛𝐮/𝐊𝐚𝐧𝐚𝐝𝐞/𝐅𝐮𝐫𝐢𝐧𝐚}}$
 
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/f2595c3ff26d4a52f432535a1705aea52a418489/IMG_20260921_214833.png)
-<p align="center">${\textsf{\color{#643d7a}𝘨𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥, 𝘢𝘳𝘰𝘢𝘤𝘦, 𝘧𝘪𝘤𝘵𝘰𝘴𝘦𝘹𝘴𝘶𝘦𝘭}}$
+<p align="center">${\textsf{\color{#643d7a}𝗀𝖾𝗇𝖽𝖾𝗋𝖿𝗅𝗎𝗂𝖽, 𝖺𝗋𝗈𝖺𝖼𝖾, 𝖿𝗂𝖼𝗍𝗈𝗌𝖾𝗑𝗌𝗎𝖾𝗅}}$
 
 <kbd>[**✦ Strawpage**](https://ashebrowni.straw.page)</kbd> &nbsp;&nbsp;<kbd>[**✦ Atabook**](https://ashebrowni.atabook.org/)</kbd>
 
@@ -41,7 +41,8 @@ ${\textsf{\color{#262345}⤷ Multifandom! If I don't know ur fandom, I'll be go 
  ${\textsf{\color{#dc143c} Some things about me!}}$</summary>
  ${\textsf{\color{#b2216b} ݁ ˖Ი𐑼ֶָ֢ I can get stressed easily so pls be careful!}}$
  
- ${\textsf{\color{#8e284e} ݁ ˖Ი𐑼ֶָ֢ I'm really shy... I'm so embarrassed to talk w others, I don't bite guys pls}}$
+ ${\textsf{\color{#8e284e} ݁ ˖Ი𐑼ֶָ֢ I'm really shy... I'm so embarrassed to talk w others,
+ so pls don't hesitate to come and talk}}$
  ${\textsf{\color{#4f3460} ݁ ˖Ი𐑼ֶָ֢ I love learning new things!(not in school grr) I'm a curious person but innocent too so..}}$
   ${\textsf{\color{#343a60} ݁ ˖Ი𐑼ֶָ֢ U can learn about me in my strawpage :3!}}$
 </details>
