@@ -1,6 +1,6 @@
-![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/7a315684a02d69f14b6f43850d962f8b00994349/6905b382dab1f255181d7883f6248037.png)
+![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/45113ae915462375efbcb70e9cede166713f50b4/1730e1be4f65038be193912bd0537cd7.jpg)
 
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=472287FD&width=435&lines=I'm+not+a+lost+cause;but..I+failed+you)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=PT+Sans&pause=1000&color=513E99&center=true&width=435&lines=A+lost+cause+huh%3F;guess+I'm+nothing+but+a+weapon.)](https://git.io/typing-svg)
 
 <p align="center">${\textsf{\color{#683176}𝘴𝘩𝘦 / 𝘩𝘦 / 𝘛𝘩𝘦𝘺 | 𝘛𝘳 / 𝘌𝘯𝘨}}$
 ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦𝐛𝐮/𝐊𝐚𝐧𝐚𝐝𝐞/𝐅𝐮𝐫𝐢𝐧𝐚}}$
