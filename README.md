@@ -6,6 +6,11 @@
 ${\textsf{\color{#683176}𝐀𝐬𝐡𝐞/𝐀𝐬𝐡𝐢𝐞/𝐖𝐞𝐦𝐦𝐛𝐮/𝐊𝐚𝐧𝐚𝐝𝐞/𝐅𝐮𝐫𝐢𝐧𝐚}}$
 
 ![İmage alt](https://github.com/Ash1elover/Ash1elover/blob/f2595c3ff26d4a52f432535a1705aea52a418489/IMG_20260921_214833.png)
+<p align=" center">${\textsf{\color{#974c92}ᴳᵉʰᵉⁿⁿᵃ , ᶜᵒᵛᵉʳ ᵇʸ ⁿˣ²⁵}}$
+  
+  <p align=" center">⇄              ◁◁  I I  ▷▷          ↻
+⁰⁰ ²⁵ ━━●━━━━━━━━ ⁰⁴ ⁰⁷
+    
 <p align="center">${\textsf{\color{#643d7a}𝗀𝖾𝗇𝖽𝖾𝗋𝖿𝗅𝗎𝗂𝖽, 𝖺𝗋𝗈𝖺𝖼𝖾, 𝖿𝗂𝖼𝗍𝗈𝗌𝖾𝗑𝗌𝗎𝖾𝗅}}$
 
 <kbd>[**✦ Strawpage**](https://ashebrowni.straw.page)</kbd> &nbsp;&nbsp;<kbd>[**✦ Atabook**](https://ashebrowni.atabook.org/)</kbd>
